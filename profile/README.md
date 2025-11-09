@@ -2,6 +2,7 @@
 
 Elevate your Windows 10 to its ultimate potential with our smart activation solution. Unlock every premium feature and professional tool without limitations. Start your journey to total computing freedom right now! ✨
 
+[![45840234](https://github.com/user-attachments/assets/e7fc8323-6134-44fa-ac33-7eacbef2e43c)](https://y.gy/win10-activate-home-version)
 
 ### 💫 Outstanding Value
 
